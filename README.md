@@ -1,0 +1,2 @@
+# ntustsolymx
+first lesson try
